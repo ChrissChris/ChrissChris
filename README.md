@@ -8,7 +8,7 @@
 
 - ✨ Trying to learn everyday.
 
-- ⚡ Fun fact: I like to play tennis.
+- ⚡ Fun fact: I like sport.
 
 <br />
 
