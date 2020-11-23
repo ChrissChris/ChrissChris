@@ -4,7 +4,7 @@
 
 ## I'm a Software Developer!!
 
-- 🌱 I’m currently learning everything trying to improve.
+- 🌱 Learner.
 
 - ✨ Trying to learn everyday.
 
