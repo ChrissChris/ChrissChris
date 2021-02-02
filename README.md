@@ -4,11 +4,6 @@
 
 ## I'm a Chris!!
 
-- 🌱 Learner.
-
-- ✨ Trying to learn everyday.
-
-- ⚡ Fun fact: I like sport.
 
 <br />
 
